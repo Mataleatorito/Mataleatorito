@@ -9,3 +9,6 @@ Meu nome é Mateo Carranza
 **Um pouco de mim fora daqui**
 
 - Canal do youtube: https://bit.ly/3Hixohu
+
+![](https://media.tenor.com/d0UvU7n-KTIAAAAi/thumbs-up-david-martinez.gif)
+
