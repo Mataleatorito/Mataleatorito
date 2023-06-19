@@ -2,7 +2,7 @@
 
 Meu nome é Mateo Carranza
 
-- Atualmente estudando programação na plataforma ALURA
+- Atualmente estudando programação na plataforma [Alura](https://www.alura.com.br)
 - Estou aprendendo HTML & CSS no momento
 - Dominando o Scratch 
 
