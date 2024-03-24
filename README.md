@@ -9,6 +9,7 @@ Meu nome é Mateo Carranza
 **Um pouco de mim fora daqui**
 
 - Canal do youtube: https://bit.ly/3Hixohu
+- Istagram: https://www.instagram.com/bahlokor4?utm_source=ig_web_button_share_sheet&igsh=ZDNlZDc0MzIxNw==
 
 ![](https://media.tenor.com/d0UvU7n-KTIAAAAi/thumbs-up-david-martinez.gif)
 
